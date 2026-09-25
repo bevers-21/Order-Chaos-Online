@@ -211,4 +211,4 @@ Order & Chaos Online is offered as a full free version, providing access to all 
 Ready to embark on an exciting journey? **Download Order & Chaos Online now and unleash your inner hero!**
 
 ---
-**Last updated:** 2026-09-25 15:35:42 UTC
+**Last updated:** 2026-09-25 19:36:04 UTC
